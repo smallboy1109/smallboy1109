@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @smallboy1109
-- 👀 I’m interested in gameing
+- 👀 I’m interested in playing
 - 🌱 I’m currently learning to code
 - 💞️ I’m looking to collaborate on games
 - 📫 How to reach me idk
